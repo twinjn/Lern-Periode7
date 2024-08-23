@@ -1,4 +1,4 @@
-## Lern-Periode 7
+## Lern-Periode 6
 
 **Grobplanung für den 16.08.2024**
 

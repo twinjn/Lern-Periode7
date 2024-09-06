@@ -15,3 +15,14 @@ Zurzeit stehe ich mit meinen Noten um die 4,5. Daher habe ich mich entschieden, 
 - Heute erledige ich den HZ 1 im Modul 231, indem ich alle Abgaben abschließe.
 - Ich lerne weiter an Modul 320, da ich dort Schwierigkeiten habe.
 - Ich beginne heute mit HZ 2 im Modul 231.
+
+**30.08.2024**
+
+- Heute arbeite ich an dem Modul 231 im HZ 2 weiter
+- Ich lerne weiter an Modul 320, da ich dort Schwierigkeiten habe.
+
+**06.08.2024**
+
+- Heute erledige ich den HZ 2 fertig im Modul 231 fertig, da ich letzte Woche krank war.
+- Wie immer lerne ich dann im Modul 320 weiter
+- Ich beginne heute mit HZ 3 im Modul 231

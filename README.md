@@ -26,3 +26,7 @@ Zurzeit stehe ich mit meinen Noten um die 4,5. Daher habe ich mich entschieden, 
 - Heute erledige ich den HZ 2 fertig im Modul 231 fertig, da ich letzte Woche krank war.
 - Wie immer lerne ich dann im Modul 320 weiter
 - Ich beginne heute mit HZ 3 im Modul 231
+
+**20.09.2024**
+- Heute erledige ich, falls möglich, den ganzen Moodle 231 fertig.
+- Dazu schaue ich noch denn Modul 320 an

@@ -31,7 +31,7 @@ Zurzeit stehe ich mit meinen Noten um die 4,5. Daher habe ich mich entschieden, 
 - Heute erledige ich, falls möglich, den ganzen Moodle 231 fertig.
 - Dazu schaue ich noch denn Modul 320 an
 
-- **27.09.2024**
+**27.09.2024**
 
 - Heute arbeite ich an dem Modul 320 weiter. Ich schaue mir die Aufgabe 4216 an (Sequenzdiagramm)
 - Danach arbeite ich gezielt an dem Modul weiter, dass ich alle Arbeiten, die ich nicht beherrsche, zu repetieren.
